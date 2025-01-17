@@ -1,10 +1,3 @@
-uhhh fuck uhh shit uhh hey so uhh shit fuck 
-minecraft.. balls
+why is github forcing me to write this
 
-
-undertale
-what the fuck
-am i writing
-
-
-they/them he/him
+stupid fucking site
